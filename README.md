@@ -6,8 +6,6 @@ From connectors and switches to circuit protection, passive, active, and electro
 
 Getting the right part at the right price should be simple. That’s why we’ve made it easy to request a quote directly from our catalog. Just select the components you’re interested in, and our team will provide a prompt, personalized response with current pricing and availability.
 
-## Why Choose Us?
-
 We’re more than a supplier - we’re your partner in production. Our experts can help you streamline sourcing, reduce costs, and solve supply chain challenges before they slow you down. Every item in our selection is vetted for quality and backed by a commitment to customer satisfaction.
 
 Start exploring our catalog today and see how easy it is to get the components you need, when you need them.
